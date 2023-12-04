@@ -1,0 +1,14 @@
+- creating an [[Personal Brand]]
+	- content I can create:
+		- photos, maybe videos, small programs, consumer tech review (written, possibly with pictures,) or other general feedback
+	- methods of sharing/distributing:
+		- a [[Personal Newsletter]]
+		- Instagram/X posts
+		- newsletter distro solution
+		- 
+	- sharing and creating more content
+		- why are you sitting on raw material? 
+			- Stop. Process it and put it out. You should push through and finish the product so that you can start getting returns on it (whether those returns be feedback, network growth, spread information)
+
+	- ________ of the week
+		- song, movie, tech tip, photo, favorite YT video, good running route
