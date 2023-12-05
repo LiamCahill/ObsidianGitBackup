@@ -1,1 +1,1 @@
-[[ObsidianGit/Pet Projects/GetMyRun/Readme]]
+[[New/Pet Projects/GetMyRun/Readme]]
