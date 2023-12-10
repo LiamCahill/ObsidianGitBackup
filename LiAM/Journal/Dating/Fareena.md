@@ -25,5 +25,10 @@ Now I feel intimidated by 1. her beauty, and 2. her education/accreditation.
 
 Accreditations intimidate me because I know that, statistically, women prefer men who are at least equal to them in terms of intelligence. Using standardized testing and diplomas from top universities as a marker for her intelligence, I would say I'm considerably out-classed, and thus going up to bat with one automatic strike.
 
-As a separate matter, she mentioned that she works for Senator Kirsten Gillabrand. Gillabrand is the Democratic Senator from Albany. Now, I know very little about her record or if Fareena completely aligns with her, to be fair. But I brings immediate concerns to my mind, as I question if that's already a nail in the coffin, in terms of Fareena and I being in agreement about politics.
+As a separate matter, she mentioned that she works for Senator Kirsten Gillabrand. Gillabrand is the Democratic Senator from Albany. Now, I know very little about her record or if Fareena completely aligns with her, to be fair. But it brings immediate concerns to my mind, as I question if that's already a nail in the coffin, in terms of Fareena and I being in agreement about politics.
 
+______
+Did I break one of the unspoken rules of the modern dating world? 
+Did I message her too quickly? 
+Is there no leeway for making a 'mistake' like that?
+What the hell.
