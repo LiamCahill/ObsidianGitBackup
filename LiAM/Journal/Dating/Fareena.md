@@ -32,3 +32,9 @@ Did I break one of the unspoken rules of the modern dating world?
 Did I message her too quickly? 
 Is there no leeway for making a 'mistake' like that?
 What the hell.
+
+
+
+---
+### Text Message Draft #2 - A final attempt
+Hey Fareena, hope you had good weekend. Just wanted to let you know that Tuesday and Wednesday aren't good for me anymore, but I'd still be interested in buying you a coffee if you're free Thursday.
