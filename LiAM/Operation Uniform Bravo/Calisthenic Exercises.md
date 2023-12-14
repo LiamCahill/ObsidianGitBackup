@@ -1,1 +1,0 @@
-![[Screenshot 2023-12-13 at 22.38.33.png]]![[Screenshot 2023-12-13 at 22.38.56.png]]![[Screenshot 2023-12-13 at 22.39.07.png]]![[Screenshot 2023-12-13 at 22.39.18.png]]
