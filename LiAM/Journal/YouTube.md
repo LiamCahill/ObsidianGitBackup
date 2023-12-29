@@ -6,7 +6,7 @@ A Better Way to Use YouTube
 
 YouTube is a fantastic resources. It has a bottomless list of content it will recommend you, and it can be used as more than just an entertainment platform. 
 
-If you want to use YouTube in a more meaningful way, instead of resorting to the same way you might use [insert social media app here] with the endless scrolling
+If you want to use YouTube in a more meaningful way, instead of resorting to the same way you might use \[insert social media app here] with the endless scrolling
 
 1. Use Lists
 	1. specifically, I'm talking about Watch Later.
