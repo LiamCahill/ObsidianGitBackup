@@ -1,0 +1,1 @@
+06Jan2024: I'm torn. I sit home and get so miserably lonely that I cannot focus. So, I go to the café but get killed by the side-conversations and lack of acknowledgement people I wish would notice me give me (AKA women.) I've become particularly aware of being invisible to women. 

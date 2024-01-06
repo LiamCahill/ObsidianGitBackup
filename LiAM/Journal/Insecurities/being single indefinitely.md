@@ -1,0 +1,2 @@
+06Jan2024: Inspired by Josh Merlis' theory, those who are in relationships are the ones worth dating. The (dating) market has selected the optimal goods. Given my lack of previous relationships and my ongoing single status (now 25/28, 89.3% years of my life) I know that the appeal to date me decreases over time.
+The longer I go single, the longer I don't have the input of a significant other shaping me and providing feedback. I will continue to evolve in my person, internal echo chamber.

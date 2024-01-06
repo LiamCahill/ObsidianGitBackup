@@ -1,0 +1,3 @@
+06Jan2024: I've known for a while that my reading speed and comprehension are poor. From playing board games with friends and family where I have trouble reading prompts and answers out loud, to reading things at work in a group setting or even just needing to re-read portions of a book when I'm at home doing it recreationally, I am constantly reminded that I've fallen behind.
+
+I was never big on doing homework before college. Book reports especially, I would rarely finish the book, and I was generally unable to keep up with the class when we were given in-class assignments.

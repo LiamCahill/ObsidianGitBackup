@@ -1,0 +1,1 @@
+06Jan2024: I head somewhere recently that the 'single epidemic' of modern men is driven by the inability to communicate. Small talk is a game created to make a first impression on little time -- a litmus test for people to use and decide if they wan to invest further time and energy is the relationship.

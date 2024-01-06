@@ -1,0 +1,1 @@
+6JAN2024: I opened Leetcode today, and couldn't do a single problem. I clicked through 10 or so 'easy' grade problems and could hardly figure out where to start. I am stunned by inability and imposter-syndrome. It's been particularly bad this week after meeting with Alla and being outperformed by her on basic tasks.
