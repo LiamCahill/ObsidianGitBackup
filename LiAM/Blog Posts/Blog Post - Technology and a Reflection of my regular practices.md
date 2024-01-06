@@ -25,7 +25,7 @@ Tech that's helpful in my life, now:
 					- find either Obsidian note or tweet about it
 			- I created a podcast notes template **which I will share here** for when I'm home and listening, and specifically want to retain or be more engaged with the show
 
-- YouTube
+- [[YouTube]]
 	- specifically, when curated
 		- block dumb channels, hide Shorts, and pull videos mainly from the Subscription tab
 	- go through, count the number of subscriptions, and bucket them into technical, entertainment, and other
